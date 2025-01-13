@@ -23,7 +23,7 @@ summaryText: Contact us immediately for professional water damage restoration in
 
 ## Professional Water Damage Restoration in St. Charles, MD
 
-St. Charles' unique planned community design and specific geographical features create [distinct water damage challenges](/blog/entries/marylands-unique-water-damage-challenges-a-complete-guide-to-regional-risks-and-solutions) requiring specialized restoration approaches:
+St. Charles' unique planned community design and specific geographical features create [distinct water damage challenges](/blog/marylands-unique-water-damage-challenges-a-complete-guide-to-regional-risks-and-solutions) requiring specialized restoration approaches:
 
 ### Community Design Impact
 
